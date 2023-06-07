@@ -1,2 +1,2 @@
-# Reposiésia
+# Reposinésia
 site repositório de imagens
